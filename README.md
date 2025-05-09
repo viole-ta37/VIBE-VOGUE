@@ -1,1 +1,1 @@
-# VIBE-VOGU
+# VIBE-VOGUE
